@@ -185,5 +185,3 @@ ssarafos_final/
 ## 💬 Поддержка
 
 [@ssarafos](https://t.me/ssarafos)
-#   u k b o o o o o o o o o o o o o o o o t 1 1 1 1 1  
- 
